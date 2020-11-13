@@ -1,5 +1,5 @@
 
-![alt text](https://drive.google.com/file/d/10LTmgQf-ky32aBu5EUfzAqsfhnpq9ynT/view?usp=sharing)
+![alt text](https://i.pinimg.com/originals/77/42/ce/7742ce2b3c85159e5800da87911813d1.png)
 
 <!--
 **juanrobles95/juanrobles95** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
